@@ -1,1 +1,2 @@
-# C-mo-evoluciona-la-capacitaci-n-laboral
+# C-mo-evoluciona-la-capacitación-laboral
+Las empresas están adoptando IA y aprendizaje flexible para mejorar la formación. La personalización del contenido permite que cada empleado desarrolle las habilidades más relevantes para su rol. Además, las habilidades blandas como la creatividad, la gestión del cambio y el liderazgo son cada vez más valoradas. En un entorno digital acelerado, la capacitación no es un lujo, sino una necesidad para mantenerse a la vanguardia.
